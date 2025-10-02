@@ -8,5 +8,5 @@
 ![](https://64.media.tumblr.com/116de41ea7353cd37db6675ea979fe6d/a2c96ce26169b138-ef/s500x750/d89725e96539204235561dbc194167143ec133e0.gifv)
 [main](https://github.com/rottenpaws)ㅤ![](https://64.media.tumblr.com/2ce1410990888b6581e96f2c8fa02cef/a47ba75be578e17b-fd/s75x75_c1/84622ad1f4f1c46b58936e464eb43c7cfe54f8a8.gifv)
 [rentry](https://rentry.co/gratefuI) ![](https://64.media.tumblr.com/f4ed91134853c3e1aa5d611614ac34cf/a47ba75be578e17b-28/s75x75_c1/b1651334da80dcafb85b291acb72f82b2726c73e.gifv)
-[atabook](https://nagitokomaeda.atabook.org/)
+[atabook](https://nagitokomeada.atabook.org/)
 ![](https://64.media.tumblr.com/643daaa291b8404116554f1b21847a5a/1e483b3b8dc231a2-ef/s1280x1920/df59f67b7c73d5280ec13aefa4d4acadfedb6921.pnj)
