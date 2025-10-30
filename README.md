@@ -75,6 +75,6 @@ bes friendssss - ryuu , puffy , adam , zayden , lani , jackson , lorelley , pois
 <details>
               <summary> <td>$${\color{#FFFFFF}\verb|wow little drop down!|}$$</td></summary>
 
-rentry - https://rentry.co/gratefuI . main git - https://github.com/humanmorality
+rentry - https://rentry.co/gratefuI .
 
 </details>
